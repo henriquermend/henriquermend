@@ -2,7 +2,7 @@
 
  🔥 Programador e futuro Engenheiro de Software
 
- 📚 Cursando o 5º perído de Engenharia de Software pelo Instituto Nacional de Telecomunicações(INATEL).
+ 📚 Cursando o 5º perído de Engenharia de Software pelo Instituto Nacional de Telecomunicações(INATEL)
 
  🧠 Poliglota(Português,Inglês,Espanhol,Alemão e Francês)
   
